@@ -1,0 +1,1 @@
+# aidenk0206.github.io
